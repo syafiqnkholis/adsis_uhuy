@@ -1,5 +1,5 @@
-dan akhire mbaleni,
+gapapa enak nih nyenja sambil gerimis-gerimis tipis.
 
-bantul, 7 Desember 2019
+jakal, 7 Desember 2019
 Deadline AS mas dayat.
 hurung gawe laporan
